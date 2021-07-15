@@ -7,3 +7,8 @@ Creating a new branch & simple.
 =======
 Creating a new branch AND F**K.
 >>>>>>> feature1
+o((>ω< ))o
+
+(#｀-_ゝ-)
+
+(¬‿¬)(¬‿¬)(¬‿¬)(¬‿¬)(¬‿¬)(¬‿¬)
